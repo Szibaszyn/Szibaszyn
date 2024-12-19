@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Szibaszyn
-- 👀 I'm interested in programming and amateur radio.
+- 👀 I'm interested in programming, amateur radio and furry.
 - 🌱 I am currently studying in high school
 - 📫 How to reach me - szibaszyn@gmail.com
 
